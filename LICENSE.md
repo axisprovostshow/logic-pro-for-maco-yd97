@@ -1,4 +1,4 @@
-# 
+# ultimate Logic Pro for macOS Template | echo-removal + lens-flare offers the most advanced Logic Pro for macOS template, with echo-removal and lens-flare. Ideal for professional
 
 
 
